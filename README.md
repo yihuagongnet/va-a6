@@ -6,7 +6,7 @@ https://fuliji.in
 
 # va-a6  fuliji福利姬视频最新域名网址：
 
-https://fuliji.quest 
+https://fuliji.quest
 
 https://fuliji.skin
 
@@ -16,13 +16,13 @@ https://fuliji.pics
 
 https://fuliji.mom
 
-https://fuliji.space 
+https://fuliji.space
 
-https://fuliji.cfd  （国内无法访问）
+https://fuliji.cfd （国内无法访问）
 
-https://fuliji.sbs 
+https://fuliji.sbs
 
-https://fuliji.lol 
+https://fuliji.lol
 
 https://fuliji.one
 
@@ -46,9 +46,9 @@ https://flj.cam
 
 https://flj.lat
 
-https://flj.lol 
+https://flj.lol
 
 https://flj.gay
 
-https://flj.mom 
+https://flj.mom
 
